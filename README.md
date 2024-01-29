@@ -8,19 +8,17 @@ founded by [rachel devorah](https://racheldevorah.studio/)<br></sm>
 cash<br>
 nathaniel cohen<br>
 
--- interlude by natalie hogue -- 
-
 **9:10-9:15**<br>
 diego<br>
 belle<br>
 sunshiyu<br>
 emory<br>
-
--- interlude by natalie hogue -- 
+natalie hogue<br>
 
 **9:15-9:20**<br>
 aj<br>
 bethanie<br>
 ryan<br>
+natalie hogue<br>
 
 ![bno4eva](/bno.png)
