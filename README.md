@@ -1,4 +1,4 @@
-# beantown network orchestra 
+# beantown network orchestra
 <sm>livecoding in [estuary using minitidal](https://estuary.mcmaster.ca/)<br>
 founded by [rachel devorah](https://racheldevorah.studio/)<br></sm>
 
@@ -16,3 +16,5 @@ emory<br>
 aj<br>
 bethanie<br>
 ryan<br>
+
+![bno4eva](/bno.png)
