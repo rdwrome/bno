@@ -1,18 +1,18 @@
-# beantown network orchestra
-livecoding in [estuary using minitidal](https://estuary.mcmaster.ca/)
-founded [by rachel devorah](https://racheldevorah.studio/)
+# beantown network orchestra 
+livecoding in [estuary using minitidal](https://estuary.mcmaster.ca/)<br>
+founded [by rachel devorah](https://racheldevorah.studio/)<br>
 
-**9:00-9:10**
-cash
-nathaniel cohen
+**9:00-9:10**<br>
+cash<br>
+nathaniel cohen<br>
 
-**9:10-9:15**
-diego 
-belle
-sunshiyu
-emory
+**9:10-9:15**<br>
+diego<br>
+belle<br>
+sunshiyu<br>
+emory<br>
 
-**9:15-9:20**
-aj
-bethanie
-ryan
+**9:15-9:20**<br>
+aj<br>
+bethanie<br>
+ryan<br>
