@@ -4,7 +4,7 @@ founded by [rachel devorah](https://racheldevorah.studio/)<br></sm>
 
 ### NESF @ MOS Feb. 22
 
-**9:00-9:10**<br>
+**9:00-9:07**<br>
 cash<br>
 nathaniel cohen<br>
 
