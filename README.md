@@ -13,11 +13,11 @@ natalie hogue<br>
 diego<br>
 belle<br>
 sunshiyu<br>
-emory<br>
+
 
 **9:15-9:20**<br>
 aj<br>
-bethanie<br>
+emory<br>
 ryan<br>
 
 ![bno4eva](/bno.png)
